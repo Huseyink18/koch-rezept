@@ -39,7 +39,7 @@
 
 ### Zutaten für 2 Portionen
 
-- _Öl zum Braten
+- _Öl zum Braten_
 - _2 m.-große	Zwiebel(n), in ganz dünne Scheiben geschnittene_
 - _100 g	Champignons, in dünne Scheiben geschnittene_
 - _1 große	Paprikaschote(n), grüne, in dünne Streifen geschnittene_
