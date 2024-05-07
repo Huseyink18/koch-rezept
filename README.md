@@ -35,7 +35,7 @@
 [>>>Detail Informationen<<<](https://www.gutekueche.at/tuerkisches-menemen-rezept-11903)
 
 
-# **Philly Cheesesteak**
+# **Philadelphia Cheese Steak Sandwich**
 
 ### Zutaten für 2 Portionen
 
