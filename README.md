@@ -25,6 +25,8 @@
 
 Nicht vergessen, immer mit einem Brot oder auch Fladenbrot essen.
 
+Es ist jedoch immer Besser wenn du die Zutaten beim nächstmöglichen türkischen Supermarkt kaufen würdest.
+
 ![Menemen](https://www.eatingwell.com/thmb/_tXGqm7YmBhImKkVD7IH5IGlARA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc()/Menemen-Turkish-Eggs-v2-1x1-1-a090ffbca76943d49876b093e28432b5.jpg).
 
 
