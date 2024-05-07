@@ -49,3 +49,6 @@
 - _220 g	Provolone oder Mozzarella, dünn geschnittener_
 - _2 große	Baguettebrötchen_
 
+### _Arbeitszeit ca. 20 Minuten_ 
+### _Koch-/Backzeit ca. 15 Minuten_
+### _Gesamtzeit ca. 35 Minuten_
