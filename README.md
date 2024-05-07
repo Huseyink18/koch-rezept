@@ -63,4 +63,4 @@
 
 **Tipps zum Rezept**
 
-Optional kann man noch auf die Fleischmischung etwas Ketchup geben, bevor der Brötchendeckel darauf kommt.
+- Optional kann man noch auf die Fleischmischung etwas Ketchup geben, bevor der Brötchendeckel darauf kommt.
