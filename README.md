@@ -59,6 +59,6 @@
 
 2. Die Steakstreifen auf die freie Fläche der Pfanne geben und maximal 2 Minuten braten, danach alles zusammenmischen. Nun in 2 Portionen in der Pfanne teilen und auf jede Hälfte den Käse geben.
 
-In der Zwischenzeit die Baguettes einmal längs durchschneiden und etwas aushöhlen. Wenn der Käse auf der Fleischmischung geschmolzen ist, die Mischung auf jeweils ein Unterteil eines Baguette geben und mit dem oberen Teil bedecken.
+3. In der Zwischenzeit die Baguettes einmal längs durchschneiden und etwas aushöhlen. Wenn der Käse auf der Fleischmischung geschmolzen ist, die Mischung auf jeweils ein Unterteil eines Baguette geben und mit dem oberen Teil bedecken.
 
 Tipp: Optional kann man noch auf die Fleischmischung etwas Ketchup geben, bevor der Brötchendeckel darauf kommt.
