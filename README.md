@@ -39,13 +39,13 @@
 
 ### Zutaten für 2 Portionen
 
-- Öl zum Braten
-- 2 m.-große	Zwiebel(n), in ganz dünne Scheiben geschnittene
-- 100 g	Champignons, in dünne Scheiben geschnittene
-- 1 große	Paprikaschote(n), grüne, in dünne Streifen geschnittene
-- 2 TL	Knoblauch, in ganz feine Scheiben geschnittener
-- Salz und Pfeffer, schwarzer
-- 250 g	Steak(s), in ganz dünne Scheiben geschnittenes
-- 220 g	Provolone oder Mozzarella, dünn geschnittener
-- 2 große	Baguettebrötchen
+- _Öl zum Braten
+- _2 m.-große	Zwiebel(n), in ganz dünne Scheiben geschnittene_
+- _100 g	Champignons, in dünne Scheiben geschnittene_
+- _1 große	Paprikaschote(n), grüne, in dünne Streifen geschnittene_
+- _2 TL	Knoblauch, in ganz feine Scheiben geschnittener_
+- _Salz und Pfeffer, schwarzer_
+- _250 g	Steak(s), in ganz dünne Scheiben geschnittenes_
+- _220 g	Provolone oder Mozzarella, dünn geschnittener_
+- _2 große	Baguettebrötchen_
 
