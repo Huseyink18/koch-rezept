@@ -52,3 +52,13 @@
 ### _Arbeitszeit ca. 20 Minuten_ 
 ### _Koch-/Backzeit ca. 15 Minuten_
 ### _Gesamtzeit ca. 35 Minuten_
+
+## Zubereitung:
+
+1. Eine Pfanne auf mittlerer Stufe erhitzen, das Öl hineingeben. Zwiebel, Pilze und Paprika hineingeben und ca. 8 Minuten braten, leicht bräunen lassen, gelegentlich umrühren. Knoblauch, Salz und Pfeffer hinzufügen und noch 30 Sekunden braten. Alles auf eine Seite der Pfanne geben.
+
+Die Steakstreifen auf die freie Fläche der Pfanne geben und maximal 2 Minuten braten, danach alles zusammenmischen. Nun in 2 Portionen in der Pfanne teilen und auf jede Hälfte den Käse geben.
+
+In der Zwischenzeit die Baguettes einmal längs durchschneiden und etwas aushöhlen. Wenn der Käse auf der Fleischmischung geschmolzen ist, die Mischung auf jeweils ein Unterteil eines Baguette geben und mit dem oberen Teil bedecken.
+
+Tipp: Optional kann man noch auf die Fleischmischung etwas Ketchup geben, bevor der Brötchendeckel darauf kommt.
