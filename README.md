@@ -65,3 +65,4 @@
 
 - Optional kann man noch auf die Fleischmischung etwas Ketchup geben, bevor der Brötchendeckel darauf kommt.
 - Vergiss nicht ein Taschentuch mitzunehmen. Es muss öl tropfen. Das sandwich soll schon fettig sein.
+- Unser Vorbild ist Prince of Bel-Air.
