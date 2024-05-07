@@ -23,9 +23,11 @@
 4. Hitze reduzieren und die Tomate dazugeben. Diese sollte so saftig sein, dass das Gemüse nun im eigenen Saft garziehen kann. Ansonsten etwas Wasser oder Brühe dazugeben.
 5. Die Eier werden verquirlt und zum stocken in die Pfanne gegeben, sobald die Flüssigkeit verkocht ist. Mit Salz und Pfeffer gewürzt auf Fladenbrot anrichten.
 
-Nicht vergessen, immer mit einem Brot oder auch Fladenbrot essen.
+**Tipps zum Rezept**
 
-Es ist jedoch immer Besser wenn du die Zutaten beim nächstmöglichen türkischen Supermarkt kaufen würdest.
+- Nicht vergessen, immer mit einem Brot oder auch Fladenbrot essen.
+
+- Es ist jedoch immer Besser wenn du die Zutaten beim nächstmöglichen türkischen Supermarkt kaufen würdest.
 
 ![Menemen](https://www.eatingwell.com/thmb/_tXGqm7YmBhImKkVD7IH5IGlARA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc()/Menemen-Turkish-Eggs-v2-1x1-1-a090ffbca76943d49876b093e28432b5.jpg).
 
