@@ -66,3 +66,5 @@
 - Optional kann man noch auf die Fleischmischung etwas Ketchup geben, bevor der Brötchendeckel darauf kommt.
 - Vergiss nicht ein Taschentuch mitzunehmen. Es muss öl tropfen. Das sandwich soll schon fettig sein.
 - Unser Vorbild ist Prince of Bel-Air.
+
+[Philly Cheesesteak](https://www.eatventure.de/media/image/74/b2/d6/PhillyCheeseSteakSandwich_2.jpg)
