@@ -64,4 +64,4 @@
 **Tipps zum Rezept**
 
 - Optional kann man noch auf die Fleischmischung etwas Ketchup geben, bevor der Brötchendeckel darauf kommt.
-- Vergiss nicht ein Taschentuch mitzunehmen. Es tropft.
+- Vergiss nicht ein Taschentuch mitzunehmen. Es muss öl tropfen. Das sandwich soll schon fettig sein.
