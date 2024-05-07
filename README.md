@@ -5,14 +5,14 @@
 
 ### _Zutaten für 2 Portionen_
 
-3.	_Stk	Paprikaschote (rot/grün/gelb)_
-1.	_Stk	Zwiebel_
-2.	_Stk	Eier_
-1.	_Stk	Tomate (groß)_
-1.	_EL	Olivenöl_
-1.	_Prise	Salz_
-1.	_Prise	Pfeffer_
-1.	_Schb	Fladenbrot_
+- 3	_Stk	Paprikaschote (rot/grün/gelb)_
+- 1	_Stk	Zwiebel_
+- 2	_Stk	Eier_
+- 1	_Stk	Tomate (groß)_
+- 1	_EL	Olivenöl_
+- 1	_Prise	Salz_
+- 1	_Prise	Pfeffer_
+- 1	_Schb	Fladenbrot_
 
 ### _Zeit : 15 min Zubereitungszeit_
 
