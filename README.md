@@ -61,4 +61,6 @@
 
 3. In der Zwischenzeit die Baguettes einmal längs durchschneiden und etwas aushöhlen. Wenn der Käse auf der Fleischmischung geschmolzen ist, die Mischung auf jeweils ein Unterteil eines Baguette geben und mit dem oberen Teil bedecken.
 
-Tipp: Optional kann man noch auf die Fleischmischung etwas Ketchup geben, bevor der Brötchendeckel darauf kommt.
+**Tipps zum Rezept**
+
+Optional kann man noch auf die Fleischmischung etwas Ketchup geben, bevor der Brötchendeckel darauf kommt.
